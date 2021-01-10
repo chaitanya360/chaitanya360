@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi, it's CJ here 👋
 
 
 
